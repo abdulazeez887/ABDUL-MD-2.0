@@ -1,1 +1,3 @@
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=BOLD&weight=680&size=24&pause=1000&color=F72121&background=F5FF4A&random=false&width=435&lines=I+AM+ABDUL+MD+WHATSAPP+BOT....;CREATED+BY+AZ+TECH+SL+....." alt="Typing SVG" /></a>
+
 #### ABDUL MD WHATSAPP USER BOT CREATING SOON!!!!!.....
