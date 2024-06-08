@@ -17,3 +17,12 @@
 </p>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=28&pause=1000&color=2CB8F7&random=false&width=435&lines=CREATING+ABDUL+MD+2.0+...+..;COMING+SOON+!!!!" alt="Typing SVG" /></a>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a><br>
+<h1>CREATED BY AZ TECH SL `❲ABDUL AZEEZ❳`</h1>
+<a><img src='<a><img src='https://telegra.ph/file/ec513e2adb20e6bb92680.jpg'></a>'></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
