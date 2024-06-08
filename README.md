@@ -20,9 +20,10 @@
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a><br>
-<h1>CREATED BY AZ TECH SL `❲ABDUL AZEEZ❳`</h1>
-<a><img src='<a><img src='https://telegra.ph/file/ec513e2adb20e6bb92680.jpg'></a>'></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<br>
+<h1>CREATED BY AZ TECH SL [ABDUL AZEEZ]</h1>
+<a><img src='https://telegra.ph/file/31ea2a56a1f44386fcf31.jpg'></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
